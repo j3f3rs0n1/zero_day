@@ -1,0 +1,1 @@
+*La disciplina tarde que temprano vence la inteligencia*
